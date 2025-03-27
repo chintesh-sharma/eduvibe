@@ -29,7 +29,7 @@ We welcome contributions from educators and students to expand and improve our r
 
 ## Contact
 
-For any queries, suggestions, or collaborations, reach out to us at **[your email/contact info]**.
+For any queries, suggestions, or collaborations, reach out to us at **chinteshsharma12@gmail.com**.
 
 Stay connected and excel in your studies with **EduVibe**! 🚀
 
